@@ -21,7 +21,7 @@ Plombergstein攀爬到顶后可以俯瞰Wolfgangsee
 
 周六晚入住的豪华露营地，紧挨湖边，可以租小船，SUP，自行车。厕所，餐厅，充电桩，无线网络，泳池，桑拿一应俱全，洗澡间甚至有吹风机。
 
-![Camping Platz](assets\images\2022-09-04\IMG_20220903_183215.jpg)
+![Camping Platz](assets/images/2022-09-04/IMG_20220903_183215.jpg)
 
 
 
