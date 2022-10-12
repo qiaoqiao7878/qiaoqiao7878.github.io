@@ -6,6 +6,7 @@ layout: post
 
 奥地利Wolfgangsee，在萨尔兹堡东边，离慕尼黑两个小时的车程。周围有Attersee, Mondsee等等，度假胜地，湖边有很多露营地。两年前来这边爬过几条铁索攀岩线路 -> 值得种草的奥地利铁索攀岩线路们，并且看上了湖边的一条结组攀岩线路。这回终于有机会拔草。
 
+
 ![Wolfgangsee](../assets/images/2022-09-04/seenot-wolfgangsee-uebersicht.jpg)
 
 露营地几乎爆满，但幸好还是订上了周六晚的一个位置。周六先去爬了另外一条线热热身，图中标号4-5-6-7。Plombergstein接近性很好，但是岩壁上有些地方用人工点，人工脚踏来降低难度，不是特别喜欢这一点。
