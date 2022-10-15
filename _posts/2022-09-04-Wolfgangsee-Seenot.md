@@ -1,6 +1,7 @@
 ---
 title: "奥地利Wolfgangsee湖上结组攀岩"
 layout: post
+tags: multipitch
 ---
 
 
